@@ -1,0 +1,1 @@
+This is an overview of my portfolio in the making.You can find my past projects here and I will continue to update it as I navigate this journey called life, from weathering storms to basking in the sunshine.Cheers!
